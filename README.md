@@ -1,3 +1,6 @@
+Please add me as an Agent Developer [Published] on Discord, my discord username is Ivan Bochka#5238
+
+
 # Stacking Agent
 
 ## Description
